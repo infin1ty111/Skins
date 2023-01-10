@@ -2,7 +2,7 @@
 slightly changed osu skins that i use
 # [rafis_cheat_fp](https://cdn.discordapp.com/attachments/708363483086848080/1062240150731628584/rafis_cheat_fp.osk)
 ![rafis_cheat_fp](https://media.discordapp.net/attachments/708363483086848080/1062241322662121493/screenshot057.jpg?width=1592&height=896)
-# [Sytho's Skin](Rafis)cheatfp](https://cdn.discordapp.com/attachments/708363483086848080/1062240148881940521/Sythos_SkinRafischeatfp.osk)
+# [Sytho's Skin(Rafis)cheatfp](https://cdn.discordapp.com/attachments/708363483086848080/1062240148881940521/Sythos_SkinRafischeatfp.osk)
 ![Sytho's Skin(Rafis)cheatfp](https://media.discordapp.net/attachments/708363483086848080/1062241321340915762/screenshot050.jpg?width=1592&height=896)
 # [vv_idke_trail](https://cdn.discordapp.com/attachments/708363483086848080/1062240151050408097/vv_idke_trail.osk)
 ![vv_idke_trail](https://media.discordapp.net/attachments/708363483086848080/1062241322959912990/screenshot058.jpg?width=1592&height=896)
