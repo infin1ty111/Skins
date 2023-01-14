@@ -12,8 +12,6 @@ slightly changed osu skins that i use
 ![- # Mrekk (2.0) «NM» #-](https://media.discordapp.net/attachments/708363483086848080/1062241321034715137/screenshot049.jpg?width=1592&height=896)
 # [- ciru_boop_edit cheatfp](https://cdn.discordapp.com/attachments/708363483086848080/1062490846475337768/-_ciru_boop_edit_cheatfp.osk)
 ![- ciru_boop_edit cheatfp](https://media.discordapp.net/attachments/708363483086848080/1062241321852620891/screenshot051.jpg?width=1592&height=896)
-# [boop cheatfp](https://cdn.discordapp.com/attachments/708363483086848080/1062490847414861994/boop_cheatfp.osk)
-![boop cheatfp](https://media.discordapp.net/attachments/708363483086848080/1062241322397864006/screenshot053.jpg?width=1592&height=896)
 # [-《CK》 Clash Monko](https://cdn.discordapp.com/attachments/708363483086848080/1062490845502259200/-_CK_Clash_Monko.osk)
 ![-《CK》 Clash Monko](https://media.discordapp.net/attachments/708363483086848080/1062241320770486302/screenshot048.jpg?width=1592&height=896)
 
