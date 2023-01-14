@@ -16,6 +16,5 @@ slightly changed osu skins that i use
 ![boop cheatfp](https://media.discordapp.net/attachments/708363483086848080/1062241322397864006/screenshot053.jpg?width=1592&height=896)
 # [-《CK》 Clash Monko](https://cdn.discordapp.com/attachments/708363483086848080/1062490845502259200/-_CK_Clash_Monko.osk)
 ![-《CK》 Clash Monko](https://media.discordapp.net/attachments/708363483086848080/1062241320770486302/screenshot048.jpg?width=1592&height=896)
-# [Prawilosc_vJP_cheatfp](https://cdn.discordapp.com/attachments/708363483086848080/1062490490710274149/Prawilosc_vJP_cheatfp.osk)
-![Prawilosc_vJP_cheatfp](https://media.discordapp.net/attachments/708363483086848080/1062241323198976030/screenshot055.jpg?width=1592&height=896)
+
 
