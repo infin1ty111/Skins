@@ -8,11 +8,9 @@ slightly changed osu skins that i use
 ![Sytho's Skin(Rafis)cheatfp](https://media.discordapp.net/attachments/708363483086848080/1062241321340915762/screenshot050.jpg?width=1592&height=896)
 # [Aristia(Edit)](https://cdn.discordapp.com/attachments/708363483086848080/1062490846781526016/AristiaEdit.osk)
 ![Aristia(Edit)](https://media.discordapp.net/attachments/708363483086848080/1062241322125246534/screenshot052.jpg?width=1592&height=896)
+# [bocchi_ryuk_dt_rafis](https://cdn.discordapp.com/attachments/819288704782172180/1067662821262893076/bocchi_ryuk_dt_rafis_cheatfp.osk)
+![bocchi_ryuk_dt_rafis](https://media.discordapp.net/attachments/819288704782172180/1067661400442409000/image.png?width=1592&height=896)
+# [bees](https://cdn.discordapp.com/attachments/819288704782172180/1067663005761933373/bees.osk)
+![bees](https://media.discordapp.net/attachments/819288704782172180/1067662949411459102/image.png?width=1592&height=896)
 # [- # Mrekk (2.0) «NM» #-](https://cdn.discordapp.com/attachments/708363483086848080/1062490845829419008/-__Mrekk_2.0_NM_-.osk)
 ![- # Mrekk (2.0) «NM» #-](https://media.discordapp.net/attachments/708363483086848080/1062241321034715137/screenshot049.jpg?width=1592&height=896)
-# [- ciru_boop_edit cheatfp](https://cdn.discordapp.com/attachments/708363483086848080/1062490846475337768/-_ciru_boop_edit_cheatfp.osk)
-![- ciru_boop_edit cheatfp](https://media.discordapp.net/attachments/708363483086848080/1062241321852620891/screenshot051.jpg?width=1592&height=896)
-# [-《CK》 Clash Monko](https://cdn.discordapp.com/attachments/708363483086848080/1062490845502259200/-_CK_Clash_Monko.osk)
-![-《CK》 Clash Monko](https://media.discordapp.net/attachments/708363483086848080/1062241320770486302/screenshot048.jpg?width=1592&height=896)
-
-
