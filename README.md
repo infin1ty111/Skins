@@ -12,5 +12,3 @@ slightly changed osu skins that i use
 ![kanye west bees](![image](https://user-images.githubusercontent.com/122183853/214480776-1ace8075-0f17-46ba-a744-43ff400618b2.png)
 # [Sytho's Skin(Rafis)cheatfp](https://cdn.discordapp.com/attachments/708363483086848080/1062490846181732434/Sythos_SkinRafis_cheatfp.osk)
 ![Sytho's Skin(Rafis)cheatfp](https://media.discordapp.net/attachments/708363483086848080/1062241321340915762/screenshot050.jpg?width=1592&height=896)
-# [- # Mrekk (2.0) «NM» #-](https://cdn.discordapp.com/attachments/708363483086848080/1062490845829419008/-__Mrekk_2.0_NM_-.osk)
-![- # Mrekk (2.0) «NM» #-](https://media.discordapp.net/attachments/708363483086848080/1062241321034715137/screenshot049.jpg?width=1592&height=896)
