@@ -1,3 +1,3 @@
 # Skins
 slightly changed osu skins that i use
-# [Milkteaism Edited Skin Collection](https://cdn.discordapp.com/attachments/708363483086848080/1062490491159056514/rafis_cheat_fp.osk)
+# [Milkteaism Edited Skin Collection](https://drive.google.com/drive/folders/1AJhMiTvvHA9UZH-M5v5BvoIrKfsvxV32?usp=sharing)
